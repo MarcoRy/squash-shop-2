@@ -1,1 +1,0 @@
-# squash-shop-2
